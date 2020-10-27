@@ -1,0 +1,1 @@
+first take coco powder and milk powder sieve these and mix the powders and keep aside next lit the gas and  take sugar in a bowl and add butter and some water to it and add the coco powder and milk powder and let it cool down next take a plate and apply ghee to plate now pour the batter on plate let it cool down to solid state net cut these into peices and eat.
